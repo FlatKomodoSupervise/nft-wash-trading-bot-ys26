@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft wash trading bot with top nft wash trading bot | simulation-mode + royalty-calculator. Featuring simulation-mode and royalty-calculator, it's the best choice
 
 
 
